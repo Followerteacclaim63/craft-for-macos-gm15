@@ -1,4 +1,4 @@
-#  
+#  ultimate Utility for Craft for macOS - export to PDF and collaboration offers the most advanced Craft for macOS utility, with export to PDF and collaboration. Ideal for
 
 
 
